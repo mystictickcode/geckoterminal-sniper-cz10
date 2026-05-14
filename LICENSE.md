@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with quantitative geckoterminal sniper bot | volume-spike-detection + auto-buy, the #1 geckoterminal sniper bot. Includes volume-spike-detection and auto-buy
 
 
 
